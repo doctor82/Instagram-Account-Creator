@@ -7,3 +7,4 @@ LTC Address: LRzZN66L4iM24JiGX4w2PUUa3nanCMzBpq
 BTC Address: bc1qluc4s4wnh6x2cnst4ecf6rmzesc4evj7y8f8ga
 
 BTW if u dono like 50$+ dm me ill give u sum updates faster ig LOL 
+yes i used gpt for the threading so kindly fuck off if u dont wanna use it
