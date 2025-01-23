@@ -4,7 +4,7 @@ import random
 
 import names
 import faker
-from . import mailtm
+import mailtm
 from datetime import datetime
 import sys
 import logging
