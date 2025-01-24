@@ -1,4 +1,7 @@
+
+
 # Instagram-Account-Creator
+**PATCHED - I will work for a fix when i get 20 stars!**
 Free Instagram account gen lol accounts last for 2 days or smthg :pray:
 
 If u want a private fully unflagged one for cheap dm me @syntaxfr123
