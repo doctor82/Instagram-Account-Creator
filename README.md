@@ -1,6 +1,9 @@
 
 
 # Instagram-Account-Creator
+** Recode is almost dude i JUST NEED PASS ENCRYPTION CUZ THEYRE FLAGGING PWD 0 AND OTHERS UNDER PWD 9 **
+
+
 **PATCHED - I will work for a fix when i get 20 stars!**
 Free Instagram account gen lol accounts last for 2 days or smthg :pray:
 
@@ -17,4 +20,3 @@ BTC Address: bc1qluc4s4wnh6x2cnst4ecf6rmzesc4evj7y8f8ga
 BTW if u dono like 50$+ dm me ill give u sum updates faster ig LOL 
 
 
-yes i used gpt for the threading so kindly fuck off if u dont wanna use it
