@@ -7,9 +7,9 @@
 **PATCHED - I will work for a fix when i get 20 stars!**
 Free Instagram account gen lol accounts last for 2 days or smthg :pray:
 
-If u want a private fully unflagged one for cheap dm me @syntaxfr123
+If u want a private fully unflagged one for cheap dm me @_syntax3d.
 
-join discord.gg/brute for a instagram bruter and roblox stuff
+Working on a new one ig lol dm me if u wanna help
 
  ![image](https://github.com/user-attachments/assets/7973683b-e5d1-44a2-b937-fa7f389be451)
  
